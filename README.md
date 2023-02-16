@@ -1,4 +1,4 @@
 # Geovana felipiaqui
 
-## aluna do Colégio Emílio de Menezes 
+## Aluna do Colégio Emílio de Menezes 
 
